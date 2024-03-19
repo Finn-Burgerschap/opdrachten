@@ -1,0 +1,2 @@
+# Wat heb ik geleerd?
+Gedurende deze periode van burgerschap met de focus op het politiek-juridisch domein, heb ik veel vaardigheden opgedaan die essentieel zijn voor een actieve rol binnen onze democratie.

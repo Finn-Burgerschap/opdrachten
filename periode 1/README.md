@@ -1,0 +1,2 @@
+# Wat heb ik geleerd?
+In de afgelopen periode burgerschap heb ik mij verdiept in het thema Sociaal Maatschappelijk door middel van drie opdrachten. Ik heb geleerd over het belang van diversiteit en inclusie in onze samenleving, het stimuleren van sociale cohesie en samenwerking, en het belang van digitale veiligheid.

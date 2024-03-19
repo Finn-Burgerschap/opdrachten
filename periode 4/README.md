@@ -1,0 +1,2 @@
+# Wat heb ik geleerd?
+In de periode van vitaal burgerschap heb ik geleerd hoe IT en gezondheid hand in hand gaan. We hebben gewerkt aan een project waarbij we een interactieve app of website hebben ontwikkeld die gezonde levensstijlen bevordert. Door in teams samen te werken, hebben we ons verdiept in fysieke activiteit, en hebben we nagedacht over de functionaliteiten die onze app moest hebben om onze doelgroep aan te spreken. Het ontwikkelen van deze app leerde ons niet alleen over gezondheidsbewustzijn, maar verbeterde ook onze digitale vaardigheden en programmeerkennis.
